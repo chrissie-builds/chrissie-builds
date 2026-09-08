@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Christie</h1>
+<h1 align="center">Hi 👋, I'm Chrissie</h1>
 <h3 align="center">A Passionate Full Stack Software Developer from South Africa</h3>
 
 ## 💬 About me: 
