@@ -7,7 +7,7 @@
   
 - I’m currently advancing my knowledge on front end development languages like JavaScript, CSS and HTML.
   
-- All of my projects are and will be available on my github profile (https://github.com/christie-builds)
+- All of my projects are and will be available on my github profile (https://github.com/chrissie-builds)
   
 - How to reach me: cl.contactdesk@gmail.com
 
