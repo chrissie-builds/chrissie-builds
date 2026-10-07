@@ -19,6 +19,7 @@
   
 - I love creating art (both digitally and physically)
   
+- I am obsessed with animals especially spiders.
 
 ## 🤝 Connect with me:
 <p align="left">
