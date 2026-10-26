@@ -15,7 +15,7 @@
 
 - I love playing video games
 
-- Obsessed Dragon Ball Fan
+- Obsessed Dragon Ball & Star Wars Fan
   
 - I love creating art (both digitally and physically)
   
